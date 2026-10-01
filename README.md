@@ -4,7 +4,7 @@
 🏫 IFTM - Campus Patrocínio  
 🏀 Apaixonado por basquete  
 🐐 Fã de **Dennis Rodman**  
-🇧🇷 Brasileiro
+🇧🇷 Brasileiro 
 
 ---
 
